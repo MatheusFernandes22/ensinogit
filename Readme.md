@@ -1,0 +1,1 @@
+Está pasta esta sendo ultilizada para fazer estudos do senac
