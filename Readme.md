@@ -1,1 +1,1 @@
-Está pasta esta sendo ultilizada para fazer estudos do senac
+Está pasta esta sendo ultilizada para fazer estudos do senac e para trabalhos
